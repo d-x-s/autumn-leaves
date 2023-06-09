@@ -1,3 +1,5 @@
+Winning short story for the 2023 UBC Japanese Writing Contest. 
+
 Article: 
 https://asia.ubc.ca/news/creative-expression-and-language-nuances-in-writing-2022-japanese-language-program-writing-contest/
 
